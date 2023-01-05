@@ -1,3 +1,4 @@
+### Hi there! 👋 
 #### <i>i divine that the true site of originality and strength is neither the other nor myself, but our relation itself.</i> --<a href="https://en.wikipedia.org/wiki/Roland_Barthes#:~:text=Roland%20G%C3%A9rard%20Barthes%20(%2Fb%C9%91%CB%90r,derived%20from%20Western%20popular%20culture." target="_blank">roland barthes</a>
 
 <!--
